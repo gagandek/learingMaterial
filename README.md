@@ -1,2 +1,2 @@
 # learingMaterial
-reg. job
+Trying to learn myself som new stuff! 
